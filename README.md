@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Aliciaa-svg 🙉
 - 👀 I’m interested in 💻｜🎬｜✈️｜🥨
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
 - 📫 azaz010713@gmail.com
 
 <!---
